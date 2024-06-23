@@ -1,1 +1,0 @@
-# generalsvr.github.io
